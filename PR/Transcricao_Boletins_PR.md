@@ -16436,3 +16436,67 @@ A esquerda se consolida com Requião Filho (PDT) ao governo e Gleisi na chapa. U
 **Pesquisa AtlasIntel**: Moro aparece com 51% das intenções de voto para governador, na frente de Requião Filho (27-28%).
 
 apurado até 04/04/2026.
+---
+
+## Boletim Diário PR - 07 de Abril de 2026
+
+Boletim Diário da Política do Paraná
+07 de Abril de 2026
+Elaborado por Cube Inteligência Política
+
+RATINHO REÚNE BASE RACHADA, CURI AVANÇA COM GRECA E PL DECLARA INDEPENDÊNCIA
+
+### Resumo do Dia
+
+As 4 Notícias que Marcaram o Dia:
+
+- **Ratinho Junior reúne base rachada no Chapéu Pensador** — Almoço com 31 deputados estaduais para recompor unidade após janela partidária e chegada de Moro ao PL.
+- **Alexandre Curi avança em aliança com Rafael Greca** — Presidente da ALEP confirma conversas diretas com ex-prefeito de Curitiba para chapa ao governo.
+- **Bancada do PL na ALEP declara independência** — PL não fará oposição a Ratinho, mas atuará de forma autônoma.
+- **Articulações para 2026** — Romanelli defende Guto Silva; Moro mira PT como adversário; Tony Garcia (DC) quer "infernizar" Moro; MDB confirma Álvaro Dias ao Senado.
+
+### Governo Estadual
+
+### Ratinho Junior Reúne Base Rachada no Chapéu Pensador
+
+O governador Ratinho Junior (PSD) convocou os 31 deputados estaduais da sua "nova base" (mais enxuta após o fim da janela partidária) para um almoço no Chapéu Pensador, em Curitiba. O objetivo declarado é recompor a unidade, motivar o grupo e discutir o cenário eleitoral de 2026.
+
+**Bastidores:**
+- O encontro é visto como tentativa urgente de recompor a unidade depois das trocas de legendas e da chegada de Sergio Moro ao PL
+- Alguns veículos chamam o almoço de "indigesto", indicando tensões internas na base
+
+### Eleições 2026
+
+### Alexandre Curi Avança em Aliança com Rafael Greca
+
+O presidente da Assembleia Legislativa e pré-candidato ao governo, Alexandre Curi (Republicanos), confirmou que tem conversado diretamente com o ex-prefeito de Curitiba Rafael Greca (MDB) para formar chapa ou aliança nas eleições de 2026.
+
+- Curi é forte no interior (carta de apoio de 189 prefeitos) e busca o voto da capital com Greca
+- Defendeu que as decisões sejam tomadas em conjunto: *"É importante estar o Ratinho, eu e o Greca na mesma sala"*
+
+**Bastidores:**
+- Curi segue defendendo candidatura única da base de Ratinho
+- Vê a demora do governador em definir nome como risco de fortalecer Moro
+
+### Bancada do PL na ALEP Declara Independência
+
+A bancada do PL na Assembleia Legislativa anunciou que atuará de forma independente e não fará oposição à base de Ratinho Junior. A posição foi reforçada em entrevistas e lives.
+
+**Bastidores:**
+A filiação de Sergio Moro ao PL gerou debandada de prefeitos, mas a bancada estadual busca manter diálogo com o governo.
+
+### Outras Articulações para 2026
+
+- **Luiz Claudio Romanelli (PSD)** — Defendeu publicamente o nome de Guto Silva como candidato do grupo de Ratinho Junior ao governo
+- **Sergio Moro (PL)** — Reiterou que não considera Ratinho seu adversário, mas o PT
+- **Tony Garcia (DC)** — Segue como pré-candidato com discurso de "infernizar" a campanha de Moro
+- **MDB** — Confirma candidatura de Álvaro Dias ao Senado
+
+### Análise: Cenário do Dia
+
+- **Base de Ratinho sob Pressão** — O almoço "indigesto" no Chapéu Pensador revela que a janela partidária deixou cicatrizes; os 31 deputados da nova base são menos do que o governo tinha antes.
+- **Curi-Greca como Fórmula** — A aliança interior + capital é a combinação mais potente que a base de Ratinho pode oferecer, mas depende do aval do governador e da aceitação do MDB.
+- **PL Independente, Não Oposição** — A postura da bancada do PL na ALEP é pragmática: manter portas abertas com o governo sem se subordinar a Moro ou a Ratinho.
+- **Moro Isola o PT** — Ao dizer que seu adversário é o PT (não Ratinho), Moro tenta evitar confronto direto com o governador e focar na polarização nacional.
+
+apurado até 07/04/2026.

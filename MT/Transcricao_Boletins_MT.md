@@ -9538,3 +9538,57 @@ A Assembleia Legislativa realiza hoje, às 19h, audiência pública para debater
 
 apurado até 06/04/2026.
 ---
+
+## Boletim Diário MT - 07 de Abril de 2026
+
+Boletim Diário da Política de Mato Grosso
+07 de Abril de 2026
+Elaborado por Cube Inteligência Política
+
+PEC DO POLICIAL PENAL, NOMEAÇÃO HISTÓRICA E SAMU EM CRISE
+
+### Resumo do Dia
+
+As 3 Notícias que Marcaram o Dia:
+
+- **ALMT aprova PEC que reconhece assistente penitenciário como policial penal** — PEC 12/2023 de Max Russi reestrutura carreira sem impacto financeiro; votação ocorreu em sessão excepcional pelo feriado de Cuiabá.
+- **Coronel Susane Tamanho é nomeada para a Segurança Pública** — Primeira mulher a comandar a pasta na história do estado; coronel Fernanda declara apoio público.
+- **Crise no SAMU** — Secretário de Saúde vai à ALMT esclarecer exonerações em massa no serviço de urgência.
+
+### Assembleia Legislativa
+
+### ALMT Aprova PEC que Reconhece Assistente Penitenciário como Policial Penal
+
+A ALMT realizou sessão ordinária pela manhã (presencial e remota), com reunião das comissões permanentes. Em destaque, foi aprovada a PEC 12/2023, de autoria do presidente Max Russi, com coautoria de Elizeu Nascimento.
+
+**O Que Muda:**
+- Reconhece o cargo de assistente penitenciário como policial penal
+- Reestrutura a carreira e garante os mesmos direitos, benefícios e enquadramento funcional
+- Sem impacto financeiro relevante
+- Votação ocorreu em sessão excepcional por causa do feriado municipal de Cuiabá (8 de abril)
+
+### Crise no SAMU — Esclarecimentos na ALMT
+
+O secretário de Saúde compareceu à Assembleia Legislativa para prestar esclarecimentos sobre as exonerações em massa no SAMU. O tema é sensível e vem gerando repercussão nas redes e entre parlamentares.
+
+### Governo Estadual
+
+### Coronel Susane Tamanho Nomeada para Comandar a Segurança Pública
+
+O governador Otaviano Pivetta (Republicanos) anunciou a nomeação da coronel Susane Tamanho (PM) para comandar a Segurança Pública do estado — a primeira mulher no cargo na história de Mato Grosso. A coronel Fernanda declarou apoio público à indicação.
+
+### Bastidores para 2026
+
+### Trocas Partidárias Consolidam Novo Mapa de Forças
+
+Metade da bancada federal de MT trocou de legenda durante a janela partidária. O Republicanos (partido de Pivetta) se consolidou como a maior bancada na ALMT após a migração de 11 deputados, fortalecendo a base do governador no Legislativo.
+
+### Análise: Cenário do Dia
+
+- **Policial Penal como Pauta Estratégica** — A aprovação da PEC 12/2023 atende demanda antiga da categoria e reforça o capital político de Max Russi com o setor de segurança pública.
+- **Nomeação Simbólica** — A escolha de uma mulher para a Segurança Pública é gesto de modernização e diversidade, mas será testada pela efetividade da gestão em estado com desafios de criminalidade rural e urbana.
+- **SAMU como Crise Latente** — As exonerações em massa no serviço de urgência podem se tornar problema político se a população sentir impacto na prestação do serviço.
+- **Republicanos Hegemônico** — Com a maior bancada na ALMT, o partido de Pivetta tem governabilidade garantida, mas precisa administrar expectativas de tantos novos filiados.
+
+apurado até 07/04/2026.
+---

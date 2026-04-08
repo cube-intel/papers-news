@@ -16139,3 +16139,72 @@ Estratégia iniciada ainda em 2024 ganha velocidade. O foco é conquistar o maio
 A CCJ do Senado realiza audiência pública amanhã (7/4) sobre a PEC 3/2024 (ex-Flávio Dino), que extingue a aposentadoria compulsória como sanção para militares, magistrados e membros do MP. O argumento é que a medida hoje funciona como "benefício" ao punido, garantindo proventos integrais a quem deveria ser severamente sancionado.
 
 apurado até 06/04/2026.
+---
+
+## Boletim Diário Nacional - 07 de Abril de 2026
+
+Boletim Diário da Política Nacional
+07 de Abril de 2026
+Elaborado por Cube Inteligência Política
+
+JANELA REDEFINE CÂMARA, TCU ADIADO, RECUO NA 6×1 E INDICAÇÃO AO STF
+
+### Resumo do Dia
+
+As 4 Notícias que Marcaram o Dia:
+
+- **Janela partidária redefine alianças** — Quase 30% dos deputados federais trocaram de legenda; PL lidera filiações; PSD fica mais nordestino e se aproxima de Lula; União Brasil sai menos bolsonarista.
+- **TCU: Câmara adia escolha de ministro** — Hugo Motta recua da aceleração; Flávio Bolsonaro troca candidato da oposição e pode acabar ajudando indicado do PT.
+- **Governo recua na escala 6×1** — Planalto desiste de projeto próprio; Hugo Motta freia urgência e tema vai à CCJ como PEC.
+- **STF: Lula troca indicação por apoio em MG** — Mantém Silveira no governo em troca de aprovação de Jorge Messias e apoio de Pacheco em Minas.
+
+### Congresso Nacional
+
+### Janela Partidária Redefine Alianças para 2026
+
+Quase 30% dos deputados federais trocaram de legenda na janela que acaba de se encerrar. O PL lidera as filiações.
+
+**Principais Mudanças:**
+- **PSD (de Ronaldo Caiado)** — Bancada ficou mais nordestina e atraiu deputados de perfil de esquerda, aproximando o partido de Lula
+- **União Brasil** — Saiu menos bolsonarista após migrações
+
+**Impacto Imediato:**
+A Câmara inicia votações pós-janela com PEC bilionária e o marco legal dos transportes na pauta.
+
+### TCU: Câmara Adia Escolha de Novo Ministro
+
+A eleição para a vaga de ministro do Tribunal de Contas da União estava prevista para quarta-feira (8/04) em plenário, mas o presidente da Câmara, Hugo Motta, recuou da aceleração. A oposição cobra a retomada da sabatina.
+
+**Bastidores:**
+- Flávio Bolsonaro trocou o candidato da oposição à vaga
+- Com a mudança, pode acabar ajudando o indicado do PT
+- A articulação enfraquece a estratégia inicial do governo
+
+### Planalto
+
+### Governo Recua na Escala 6×1 e Hugo Motta Freia Urgência
+
+O Planalto desistiu de enviar projeto próprio sobre o fim da jornada 6×1. O texto da Câmara vai à CCJ na semana que vem.
+
+**Bastidores:**
+- Hugo Motta deixou claro que "não está a fim de acelerar" o debate
+- Indicou que o tema deve tramitar como PEC, não como urgência constitucional
+
+### STF
+
+### Lula Usa Cargo no Governo para Garantir Messias e Apoio de Pacheco
+
+Lula mantém o ministro Alexandre Silveira no governo em troca da aprovação de Jorge Messias no STF e do apoio do presidente do Senado, Rodrigo Pacheco, em Minas Gerais.
+
+**Bastidores:**
+- Ministro Alexandre de Moraes (via Mendonça) já sinaliza que espera Messias "em breve" na Corte
+- O Planalto enviou a indicação num momento de crise reputacional do STF e com a Corte incompleta
+
+### Análise: Cenário do Dia
+
+- **Câmara Redesenhada** — A troca de quase 30% dos deputados altera correlações de força e pode facilitar ou dificultar votações estratégicas do governo, dependendo do tema.
+- **TCU como Moeda de Troca** — O adiamento e a troca de candidatos revelam que a vaga no tribunal virou peça de negociação entre governo e oposição.
+- **6×1 Esfria** — O recuo do Planalto e a postura de Motta indicam que o tema não será prioridade neste semestre, frustrando sindicatos e a base popular.
+- **STF Negociado** — A vinculação entre indicação ao STF, manutenção de ministro e apoio eleitoral em MG expõe a lógica transacional que rege a relação entre Planalto e Senado.
+
+apurado até 07/04/2026.
